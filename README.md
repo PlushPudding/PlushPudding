@@ -2,7 +2,7 @@
   
   ˚ ༘♡ ⋆｡˚ Interested in programming bots and possibly games!˚୨୧⋆｡
 
-  ˚ ༘♡ ⋆｡˚ I’m currently learning python, C#, and ruby.˚୨୧⋆｡
+  ˚ ༘♡ ⋆｡˚ I’m currently learning python, C++, and ruby.˚୨୧⋆｡
 
  ˚ ༘♡ ⋆｡˚ I am not looking to give away any social media or emails at the moment since this account 
         is for fun and everything I create is ˚୨୧⋆
